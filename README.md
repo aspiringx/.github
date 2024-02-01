@@ -30,6 +30,7 @@ If you want to start a connection, you can connect with any of our group
 owners or mentors that choose to add their LinkedIn profile to this list.
 
 * [Joe Tippetts](https://www.linkedin.com/in/jtippetts/)
+* [Nick Delgado](https://www.linkedin.com/in/ndelgado11/)
 *
 
 We want to ensure you're a real person who doesn't just want to join our group
